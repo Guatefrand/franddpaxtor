@@ -1,0 +1,2 @@
+# franddpaxtor
+Vamos por bitcoim
